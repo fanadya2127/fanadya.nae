@@ -1,0 +1,2 @@
+# fanadya.nae
+kado lana
