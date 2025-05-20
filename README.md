@@ -2,7 +2,7 @@
 kado lana
 akuu buatinn sayangg inii khususs untukk ulang tahunn sayangg yang kee 15
 
-BAHAGIAAA TETUSS YAAA BUATT SAYANGG AKUUU
+BAHAGIAAA TERUSS YAAA BUATT SAYANGG AKUUU
 
 kamuu ituu bagaii bulann🌕 dan aku bagai bumi🌏 di semesta yang di penuhi milyaran bintang🌟💫, hanya kamu seorang yang dapat menemani aku dan mengelilingi dunia akuu yang hancur sebagai bumi
 
