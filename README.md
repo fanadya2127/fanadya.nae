@@ -1,2 +1,16 @@
 # fanadya.nae
 kado lana
+akuu buatinn sayangg inii khususs untukk ulang tahunn sayangg yang kee 15
+
+BAHAGIAAA TETUSS YAAA BUATT SAYANGG AKUUU
+
+kamuu ituu bagaii bulann🌕 dan aku bagai bumi🌏 di semesta yang di penuhi milyaran bintang🌟💫, hanya kamu seorang yang dapat menemani aku dan mengelilingi dunia akuu yang hancur sebagai bumi
+
+hanya sayang seorang yang bersinar paling terang disaatt dunia malam sedang murung dan gelisah🌌🌃, aku sebagai bumi dan kamu sebagai bulan. aku selalu melihat kamu dengan sinar kamu yang paling terang dan paling cantik di antaraa semuaa penghuni langit malam🌉🌌🌃🎑
+
+tetap lah menjadi bulan ku yang selalu menemani malam ku yang sunyi, aku mencintaimu dengan segala perasaan ku untukmu jadi lah cahaya yang menyinari hati ku saat aku merasa dunia ku sedang hancur
+
+aku sayang kamu dan aku sangat mencintaimu💞🤍
+
+written by -F
+
